@@ -22,4 +22,4 @@ I am high school student in one of Tbilisi public schools, with highest grades.
 Also, I have completed 2 stages on BitCamp online programming learning platform.
 
 ### English
-I have been learning english language since I was 5. I use it everyday and I'd say I am pretty fluent using it.
+I have 11 years of english experience. I use it everyday and I'd say I am pretty fluent using it.
